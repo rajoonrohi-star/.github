@@ -13,8 +13,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
-Ruytuett
-Hjjruuiehnf
-Shires h gh I ruts
-H ie uh r
+-->rajoon012
+Aviator game 
+Screet key
+Account id
